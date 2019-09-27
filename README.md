@@ -1,6 +1,5 @@
 # GitTestWeb
-Click The Cat Dude WTF are you dumb 
 
-##Go to school kid
+Now we leave this class
 
-bitch please
+#I'm Dead Inside
